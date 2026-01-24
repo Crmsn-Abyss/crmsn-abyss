@@ -1,9 +1,8 @@
 <div align="center">
 
-<img width="600" height="369" alt="image" src="https://github.com/user-attachments/assets/e698fc97-d645-4e7e-af4b-ac9eb30aca79" />
+<img width="600" height="400" alt="image" src="https://github.com/user-attachments/assets/61b2db20-3cd7-4492-9dfe-b18ea1d7888e" />
 
-
-
+▀▄▀▄▀▄▀▄▀▄▀▄
 
 　―― OO1
 
