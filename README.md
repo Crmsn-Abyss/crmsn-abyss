@@ -4,6 +4,10 @@
 
 ▀▄▀▄▀▄▀▄▀▄▀▄
 
+[![Hits](https://hits.sh/github.com/crmsn-abyss/hits.svg?style=for-the-badge&label=Creatures&color=cf380e&labelColor=860909)](https://hits.sh/github.com/crmsn-abyss/hits/)
+
+▀▄▀▄▀▄▀▄▀▄▀▄
+
 　―― OO1
 
 ❝ 𝕽iptide ! ❞
