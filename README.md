@@ -1,17 +1,18 @@
 <div align="center">
 
-<img width="600" height="400" alt="image" src="https://github.com/user-attachments/assets/61b2db20-3cd7-4492-9dfe-b18ea1d7888e" />
+<img width="600" height="400" alt="image" src="https://file.garden/Z3G4GJAjyGTEZhVT/Identity/Banner1" />
 
-▀▄▀▄▀▄▀▄▀▄▀▄
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-[![Hits](https://hits.sh/github.com/crmsn-abyss/hits.svg?style=for-the-badge&label=Creatures&color=cf380e&labelColor=860909)](https://hits.sh/github.com/crmsn-abyss/hits/)
+[![Hits](https://hits.sh/github.com/crmsn-abyss.svg?label=%E2%80%A0%E3%80%80%F0%93%8E%9F%E3%80%80%20%20Creatures%20%E3%80%80%F0%93%8E%9F%E3%80%80%EA%92%B0&extraCount=49&color=888888&labelColor=000000)](https://hits.sh/github.com/crmsn-abyss/)
 
-▀▄▀▄▀▄▀▄▀▄▀▄
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-　―― OO1
+　―― OO1 ―― *Unknown*
 
-❝ 𝕽iptide ! ❞
+𖤝 ㅤㅤ***Indentity***ㅤㅤ*She***Her**
 
-**爆弾**  ― <ins>**Chi</ins>mi**
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+
 
 ╱ *crmsn4byss*
